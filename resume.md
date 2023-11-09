@@ -1,6 +1,6 @@
 #  EDEN BARLOW
 ---
-#### (801) 520-0565 | edenpage.barlow@gmail.com | Lehi, UT 84043
+#### (801) 520-0575 | eden.barlow@gmail.com | Lehi, UT 84043
 
 Detail-oriented student with excellent communication, interpersonal, and creative thinking skills. Aiming to leverage my abilities to successfully fill the vacancy at your company. Currently praised as hard working by my peers, I can be relied upon to help your company achieve its goals.
 
